@@ -1,4 +1,4 @@
-# co78e4cbe80459d611df3e2d5
+# IsraelRex
 
 Quick start:
 
